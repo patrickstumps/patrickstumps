@@ -2,7 +2,7 @@
 </br>
 <img align="left" width="270" height="x" alt="deviltrick" src="https://github.com/user-attachments/assets/305fb1b0-9004-454b-8c20-0803d6420346" />
 </br>
-hi , i'm patrick or lewis. but i also love kellen and schmitt. my main pronouns are it / circus , with a preference for masc terms. i do not enjoy being called a ' they. ' i'm omniromantic with a strong leaning towards men and on the aroace spectrum.
+hi , i'm patrick or lewis. but i also love donnie and schmitt. my main pronouns are it / circus , with a preference for masc terms. i do not enjoy being called a ' they. ' i'm omniromantic with a strong leaning towards men and on the aroace spectrum.
 </br>　</br>
 i'm a proud transmasc boygirl with multiple alterhuman types && kins like demonkin and cowkin. <b> i am a factkin of patrick stump from every era ever </b> , ones notably being ( but not limited to ) ybc!trick and soul punk / devil!trick.
 </br>　</br>
